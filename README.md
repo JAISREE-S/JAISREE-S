@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ssjaisree@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/JAISREE-S](https://github.com/JAISREE-S)
+- 📄 Know about my experiences [https://github.com/JAISREE-S](https://github.com/JAISREE-S) || https://github.com/JAISREE-S/RESUME 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
